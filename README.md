@@ -1,2 +1,2 @@
 # Writing_a_draft
-Presentation with tips to be an efficient writer
+Tips to overcome the blank page syndrome and be an efficient writer
